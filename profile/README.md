@@ -7,5 +7,5 @@ Descubra nossos lançamentos e prepare-se para uma nova era de mobilidade, com v
 
 O futuro chegou. Hello, tomorrow.
 
-[https://www.gwmmotors.com.br/](https://www.gwmmotors.com.br/)
+[https://www.gwmmotors.com.br/](https://www.gwmmotors.com.br/)  
 [https://www.careers-page.com/gwm-brasil#openings](https://www.careers-page.com/gwm-brasil#openings)
